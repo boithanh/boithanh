@@ -1,5 +1,5 @@
 ### Hi there I'M Thạnh 👋
-- 🌱 I’m currently studing at CyberSoft Academy
+- 🌱 I’m currently studying at CyberSoft Academy
 - 💬 Nice to meet you, say hi now !!!
 
 ## ⚙ Technologies
